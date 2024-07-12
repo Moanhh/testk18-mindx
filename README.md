@@ -1,0 +1,1 @@
+# testk18-mindx
